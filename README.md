@@ -1,3 +1,16 @@
 https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter-1.CBZ
 https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter-2.CBZ
 https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter-3.CBZ
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter%204.cbz
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter%205.cbz
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter%206.cbz
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter%207.cbz
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter-8.CBZ
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter-9.CBZ
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter-10.CBZ
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter%2011.cbz
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter%2012.cbz
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter%2013.cbz
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter%2014.cbz
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter%2015.cbz
+https://github.com/Ivan010619/GROW-STRONGER-BY-EATING/raw/refs/heads/main/Chapter%2016.cbz
